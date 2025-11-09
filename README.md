@@ -1,17 +1,1 @@
->First Principles. 
- 
-      
-                        
-   
-      
-    
- 
-         
-
-  
-   
-
-
-
-
 
